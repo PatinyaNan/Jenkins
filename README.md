@@ -14,20 +14,3 @@ Demo for php
 # test
 เมื่อไหร่จะได้สักที
 ขอให้ได้
-ldforlgp[elg[plrplg[pl[palplsgperlg
-
-
-เบื่อๆ
-
-
-# web
-# test
-# test1231
-
-
-# web
-# test
-# test success
-
-
-#lkdlglkokg
